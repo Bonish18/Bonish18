@@ -7,4 +7,4 @@ Pursuing Bachelor at BCA in DMC Collage
 <br>
 📫 How to reach me: Instagram - @bonish.me
 😄 Pronouns: He/His
-⚡ Fun fact: If I went then I am probably doing my Household stuff
+⚡ Fun fact: If I went offline then I am probably playing games with some bulshit chaotic friends!!
